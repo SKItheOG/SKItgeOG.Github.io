@@ -1,2 +1,0 @@
-# SKItgeOG.Github.io
-sick 
